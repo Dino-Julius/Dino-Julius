@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Dino-Julius
+- 👀 I’m interested in programming, robotics and tech.
+- 🌱 I’m currently in my last year of high school.
+- 💞️ I’m currentrly learning Python, Go, Labview and C++, also cybersecurity and ethical hacking.
+- 📫 How to reach me @juliocv_26 on Instagram, @bot_julius on Twitter and @Julius#4774 on Discord.
+- 🌮 Viva México!
